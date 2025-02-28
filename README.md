@@ -1,4 +1,4 @@
-# Link-th-ng-tin
+# Link-thông-tin
 Những link, thông tin liên quan về lớp B024NA3
 
 # 💫 Giới thiệu  
